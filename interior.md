@@ -15,7 +15,7 @@ Which was good cus it wasnt immune to the bad smells, but also bad because I the
 ![IMG_20191229_133200.jpg](./pics/interior/IMG_20191229_133200.jpg)  
 ![IMG_20191229_133205.jpg](./pics/interior/IMG_20191229_133205.jpg)  
 
-Turns out headliners are expensive. No worries. Got some insulating foam, spray-on adhesive, couple curtains and some corregated plastic board.
+Turns out headliners are expensive. No worries. Got some insulating foam, spray-on adhesive, couple curtains and some corrugated plastic board.
 
 ![IMG_20200105_114209.jpg](./pics/interior/IMG_20200105_114209.jpg)
 ![IMG_20191231_180306.jpg](./pics/interior/IMG_20191231_180306.jpg)  
@@ -57,7 +57,7 @@ Also had to get rid of the angular mounts on the new seat rails and use a small 
 ![IMG_20200111_164754.jpg](./pics/interior/IMG_20200111_164754.jpg)  
 
 Made another trip to the wreckers and got a handbrake assembly from a foxbody mustang. 
-The stock oldschool under-dash e-brake wasnt connected and was missing some linkages. Figured skids would be easier with something more... accessable.
+The stock oldschool under-dash e-brake wasnt connected and was missing some linkages. Figured skids would be easier with something more... accessible.
 
 ![IMG_20200118_145806.jpg](./pics/interior/IMG_20200118_145806.jpg)  
 ![IMG_20200118_160201.jpg](./pics/interior/IMG_20200118_160201.jpg)  
@@ -72,7 +72,7 @@ Used an old "drain snake" as guides for the cables
 ![IMG_20200119_150813.jpg](./pics/interior/IMG_20200119_150813.jpg)  
 ![IMG_20200119_173938.jpg](./pics/interior/IMG_20200119_173938.jpg)  
 
-Rounded the slots on the ebrake spreader to accomodate the anchor bolts
+Rounded the slots on the ebrake spreader to accommodate the anchor bolts
 
  
 ![IMG_20200119_174235.jpg](./pics/interior/IMG_20200119_174235.jpg)  
